@@ -1,2 +1,2 @@
 # XB-Don--
-Content creator and project management 
+content creator, web developer & project management 👌
